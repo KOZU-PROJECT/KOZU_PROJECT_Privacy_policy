@@ -1,1 +1,1 @@
-# Kozuz-World-Privacy-policy
+# KOZU-PROJECT-Privacy-policy
